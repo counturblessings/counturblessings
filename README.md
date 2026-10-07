@@ -12,3 +12,10 @@
 　![yaoi button](https://i.postimg.cc/yYQRN03R/ezgif-7face76a7aa0f6cd.gif)　![ao3 kudos button](https://i.postimg.cc/RFB6YRys/ezgif-7804e7deff6f7036.gif)
 
 　　　　๑𓏼　[rentry](https://rentry.co/olisarus)　꒰๑ ´   ` ๑꒱　[atabook](https://counturblessings.atabook.org)　∔　[pokefarm](https://pfq.link/evidenceonfire)　 ྀི১
+<details>
+
+<summary>　</summary>
+
+pls do not c+h unless it's in my name, i block freely, -15 dni. ty <3
+
+</details>
