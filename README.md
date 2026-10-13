@@ -20,9 +20,9 @@
 
 　　  zack fair yume!! i struggle with disorders such as
 
-　　  as ocd, did, and autism :( pls pls read my [rentry](https://rentry.co/olisarus) 2 know
+　　  as ocd, did, and autism :( pls pls read my [rentry](https://rentry.co/olisarus)
 
-　　 about my interests & general byi / dni !! ( ˶˘ ³˘)♡
+　　  2 know about my interests & general byi / dni ! <3
 
 　　![](https://komarev.com/ghpvc/?username=counturblessings&color=E79FBC&label=heartless+destroyed&abbreviated=true&base=400)　![yaoi button](https://i.postimg.cc/yYQRN03R/ezgif-7face76a7aa0f6cd.gif)　![angel button](https://i.postimg.cc/g0XbRtNj/angelbutton.gif)
 
