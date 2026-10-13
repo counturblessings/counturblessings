@@ -8,29 +8,35 @@
 　　　　　　never　grow　up ,　never　die ! !
                <br>
 
- 　𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄
+ 　　 　   𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄
 
- 　(˵◝ ⩊  ◜˵マ　hai ! my name is oli or aoife !! HAPPY HALLOWEEN
+ 　(˵◝ ⩊  ◜˵マ　hai ! my name is oli or aoife !! HAPPY
        
-　　PONYTOWNERS ! i'm an agender angelkin who uses xenogenders,
+　　HALLOWEEN PONYTOWNERS ! i'm an agender angelkin
 
-　　i'm also on the aroace spec, i'm taken <3 + i'm a hyper-sharing
+　　 who uses xenogenders, i'm also on the aroace spec,
 
-　　zack fair yume !! ^__^ i struggle with disorders such as ocd,
+　　 i'm taken <3 + i'm a hyper-sharing zack fair yume!!
 
-　　did, and autism :( pls pls read my [rentry](https://rentry.co/olisarus) 2 know about my
+　　 i struggle with disorders such as ocd, did, and
 
-　　interests & general byi / dni !! ( ˶˘ ³˘)♡
+　　 autism :( pls pls read my [rentry](https://rentry.co/olisarus) 2 know about
 
-　　![](https://komarev.com/ghpvc/?username=counturblessings&color=E79FBC&label=heartless+destroyed&abbreviated=true&base=400)　![yaoi button](https://i.postimg.cc/yYQRN03R/ezgif-7face76a7aa0f6cd.gif)　![angel button](https://i.postimg.cc/g0XbRtNj/angelbutton.gif)　![naughty button](https://i.postimg.cc/TwVSqzm6/naughtybutton.gif)
+　　 my interests & general byi / dni !! ( ˶˘ ³˘)♡
 
-　　๑𓏼　please do not c+h with me unless it's in my skin name . -15
+　　![](https://komarev.com/ghpvc/?username=counturblessings&color=E79FBC&label=heartless+destroyed&abbreviated=true&base=400)　![yaoi button](https://i.postimg.cc/yYQRN03R/ezgif-7face76a7aa0f6cd.gif)　![angel button](https://i.postimg.cc/g0XbRtNj/angelbutton.gif)
 
-　　(UNLESS IK U OR I EXPLICITLY SAY IT'S OK) dni . i don't have a strict
+　　๑𓏼　please do not c+h with me unless it's
 
-　　ponytown dni ! i block freely . if u know me in regis, pls be careful &
+　　 in my skin name . -15 dni (UNLESS IK U OR
+
+　　 I EXPLICITLY SAY IT'S OK). i don't have a strict
      
-　　make sure you don't break any srs boundaries , you will be blocked .
+　　ponytown dni ! i block freely . if u know me in regis,
+
+　　pls be careful & make sure you don't break any srs
+
+　　boundaries , you will be blocked .
 　　　　　
 <br>
 
