@@ -18,7 +18,7 @@
 
 　　  aroace spec, i'm taken <3 + i'm a hyper-sharing
 
-　　  zack fair yume!! i struggle with disorders such as ocd, did, and
+　　  zack fair yume!! i struggle with disorders such as
 
 　　  as ocd, did, and autism :( pls pls read my [rentry](https://rentry.co/olisarus) 2 know
 
