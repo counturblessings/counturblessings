@@ -3,9 +3,9 @@
 <img align="right" height="600" src="https://i.postimg.cc/zfHR4p2h/Untitled31-20261012210708.png"/>
 
  　
- 　sleep　all　day ,　party　all　night !
+ 　꯱ָׂℓᥱᥱթ　݁𐓠ℓℓ　ძִ𐓠ყ ,　թ݁𐓠rtყ　݁𐓠ℓℓ　ɳight !
      
-　　　　　　　never　grow　up ,　never　die ! !
+　　　　　　　ɳᥱ𐐷ᥱr　grꮻֹ͟ω　ꮻֹ͟ℓძ ,　ɳᥱ𐐷ᥱr　ძִiᥱ ! !
                <br>
 
  　　     𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄
