@@ -8,21 +8,21 @@
 　　　　　　never　grow　up ,　never　die ! !
                <br>
 
- 　　 　   𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄
+ 　　    𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄⠀࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄
 
  　(˵◝ ⩊  ◜˵マ　hai ! my name is oli or aoife !! HAPPY
        
-　　HALLOWEEN PONYTOWNERS ! i'm an agender angelkin
+　　HALLOWEEN PONYTOWNERS ! i'm an agender
 
-　　 who uses xenogenders, i'm also on the aroace spec,
+　　  angelkin who uses xenogenders, i'm also on the
 
-　　 i'm taken <3 + i'm a hyper-sharing zack fair yume!!
+　　  aroace spec, i'm taken <3 + i'm a hyper-sharing
 
-　　 i struggle with disorders such as ocd, did, and
+　　  zack fair yume!! i struggle with disorders such as ocd, did, and
 
-　　 autism :( pls pls read my [rentry](https://rentry.co/olisarus) 2 know about
+　　  as ocd, did, and autism :( pls pls read my [rentry](https://rentry.co/olisarus) 2 know
 
-　　 my interests & general byi / dni !! ( ˶˘ ³˘)♡
+　　 about my interests & general byi / dni !! ( ˶˘ ³˘)♡
 
 　　![](https://komarev.com/ghpvc/?username=counturblessings&color=E79FBC&label=heartless+destroyed&abbreviated=true&base=400)　![yaoi button](https://i.postimg.cc/yYQRN03R/ezgif-7face76a7aa0f6cd.gif)　![angel button](https://i.postimg.cc/g0XbRtNj/angelbutton.gif)
 
